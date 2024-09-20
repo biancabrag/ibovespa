@@ -6,7 +6,7 @@ The participants of this project were:
 Antonio Ferrazzoli Santos
 Bianca Braga de Carvalho
 Isabela Rizzardi dos Santos
-Thaynnara Luciana dos Santos
+Thaynnara Luciano dos Santos
 Kariny Lys Lugão Rebelo
 Vinicius Leite Souza
 
